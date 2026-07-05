@@ -11,7 +11,8 @@ art
 ![](https://64.media.tumblr.com/9f2a38effb77b58080ec29e37511a98b/6f4125642902be71-da/s75x75_c1/1abef2772a8641a00268cf251f9a1d5d10dc90e2.pnj) ![](https://komarev.com/ghpvc/?username=rottingcrystal-username&label=BIOGRAFTS+&color=f4005c)
 
  <samp>$\color{#f4005c}{\textsf{.✦ ݁˖ AUDHD + VISUAL SNOW!!!}}$</samp>  
- <samp>$\color{#b30043}{\textsf{.✦ ݁˖ I DO MY BEST TO BE AS NICE AS I CAN, EVEN WITH THAT I EVENTUALLY GET TICKED OFF WHICH LEADS TO ME BEING MOODY AND MEAN..}}$</samp>  
+ <samp>$\color{#b30043}{\textsf{. ݁˖ I DO MY BEST TO BE AS NICE AS I CAN, EVEN WITH THAT I EVENTUALLY GET TICKED OFF WHICH LEADS TO ME BEING MOODY AND MEAN..}}$</samp>  
+  <samp>$\color{#b30043}{\textsf{. ݁˖ I FORGOT WHAT I HAD PLANNED TO WRITE HERE}}$</samp>  
 <samp>$\color{#900036}{\textsf{.✦ ݁˖ I WILL EVENTUALLY FINISH THIS AND MAKE A MATCHING STRAWPAGE IF I FEEL LIKE IT!!!}}$</samp>  
 
 

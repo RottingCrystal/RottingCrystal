@@ -1,5 +1,5 @@
 
-<samp>$\color{#696969}{\textsf{Blackrock scientist reveal the hi}}$</samp>
+<samp>$\color{#696969}{\textsf{Blackrock scientists reveal the hi}}$</samp>
 
 ![](https://64.media.tumblr.com/b369725c800cd4aab1c2f77912ffa7a3/45646873000cb635-69/s1280x1920/98b769ac481eca5f18a71cbaac89c50daee7c80c.pnj)
 
@@ -20,7 +20,7 @@
 
 ![](https://64.media.tumblr.com/be96d9893e329c1189ae2cb126b93109/9fa3879f7ee06eb3-d6/s100x200/72f283bacab5ab1201c07266e6d0e3e49e31a4bf.gifv)
 
-<samp>$\color{#696969}{\textsf{Usuallyy with friends or just sitting if im on at all}}$</samp>
+<samp>$\color{#696969}{\textsf{Blackrock scientists reveal the bye}}$</samp>
 
 ![](https://64.media.tumblr.com/0ec6fce9bfdf0ba60a45f9d653bbf964/45646873000cb635-67/s1280x1920/8489bb151e35b7cb3a48211b14c114c87c2c6729.pnj)
 
